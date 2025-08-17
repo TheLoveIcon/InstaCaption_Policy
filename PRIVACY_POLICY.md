@@ -55,4 +55,4 @@ If you have questions or concerns about this Privacy Policy, please contact us a
 
 ---
 
-© 2025 InstaCaption  
+© 2025 InstaCaption.uk  
