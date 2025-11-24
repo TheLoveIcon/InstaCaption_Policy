@@ -1,5 +1,5 @@
 # Privacy Policy  
-**Effective Date:** August 17, 2025  
+**Effective Date:** November 13, 2025  
 
 InstaCaption respects your privacy and is committed to protecting it. This Privacy Policy explains how we collect, use, and safeguard your information when you use our app.
 
